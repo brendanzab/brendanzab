@@ -1,4 +1,4 @@
-Hello, I'm Brendan! ([he/him](https://www.mypronouns.org/he-him))
+### Hello, I'm Brendan! ([he/him](https://www.mypronouns.org/he-him))
 
 I'm a graphic designer and artist by training, and that greatly shapes the way I see my work.
 
